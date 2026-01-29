@@ -1,0 +1,3 @@
+# I hope this all makes sense to me at some point. I am nearly completely lost.
+# I have dont this 4 times and I've finally finished this part.
+# I look forward to class though...
